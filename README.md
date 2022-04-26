@@ -1,3 +1,3 @@
 # Udder
 
-Good ass on demand milk
+Good on demand milk
